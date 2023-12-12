@@ -1,3 +1,1 @@
-![crying](https://user-images.githubusercontent.com/99400979/208913002-dcd6ccde-5c77-4925-9f21-838b67670697.jpg)
-
-
+![393169593_1835941563490754_3285164893323897754_n](https://github.com/argyrisp/argyrisp/assets/99400979/d9ad7c9f-8389-44ff-97bf-fdf610782a2d)
